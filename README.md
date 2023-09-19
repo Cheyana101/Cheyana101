@@ -8,3 +8,5 @@
 Cheyana101/Cheyana101 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+I'm interested in learning what makes people happy. 
+im currently learning to show better Legacy building! 
